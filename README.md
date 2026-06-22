@@ -96,7 +96,7 @@ interfaces** built for large teams and long-lived enterprise products.
 
 ## 🌐 Portfolio
 
-🔗 https://sites.google.com/view/guptagrandhi  
+🔗 https://www.notion.so/Grandhi-Raja-Lakshmi-Narayana-Gupta-Portfolio-2dd849fbfa0d804e8ca8c58c36c85f84?showMoveTo=true
 
 ---
 
@@ -106,7 +106,7 @@ interfaces** built for large teams and long-lived enterprise products.
 guptagrln.sgec@gmail.com  
 
 💼 LinkedIn  
-https://www.linkedin.com/in/gupta-grln  
+https://www.linkedin.com/in/grandhi-raja-lakshmi-narayana-gupta/
 
 ---
 
