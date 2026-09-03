@@ -103,7 +103,7 @@ interfaces** built for large teams and long-lived enterprise products.
 ## 📬 Contact
 
 📧 Email  
-guptagrln95@gmail.com  
+grlngupta95@gmail.com  
 
 💼 LinkedIn  
 https://www.linkedin.com/in/grandhi-raja-lakshmi-narayana-gupta/
